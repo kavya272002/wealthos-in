@@ -4,7 +4,7 @@ So when I asked him – how much is your total net worth?
 Answer: he did not know the exact amount.
 
 And that’s the same situation where many young investors find themselves today.
-content/blog/image.png
+content/image.png
 ---
 
 ## Main problem what you as an investor make
